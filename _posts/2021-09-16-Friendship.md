@@ -1,6 +1,6 @@
 ---
-title: "RE Meteor 350"
-date: 2021-09-15
+title: "Friendship"
+date: 2021-09-16
 categories:
 ---
 True Friendship is a treasure that no can easily possess. God gave us the liberty to choose friends because they will be with us till the last breath. Loving someone related to us is a natural tendency. Loving and caring for someone whom you met as a stranger but grew up to be the best buds is a totally different feeling of extolment. Gradually they become the best relation and the top most priority. Friendship is nothing but true and pure love without any kind of apprehension in return.
