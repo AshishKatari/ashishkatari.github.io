@@ -1,6 +1,6 @@
 ---
 title: "Education"
-date: 2021-09-16
+date: 2021-09-17
 categories:
 ---
 The importance of education in life is immense. It facilitates quality learning to people throughout their life. It inculcates knowledge, belief, skill, values and moral habits. It improves the way of living and raises the social and economic status of individuals. Education makes life better and peaceful. It transforms the personality of individuals and makes them feel confident.
